@@ -1,3 +1,3 @@
 # Smile for Me!
 
-### Video link: _
+### Video link: https://youtu.be/hjoFAkn_DDA
